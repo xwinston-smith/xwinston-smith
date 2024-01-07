@@ -1,7 +1,6 @@
 > *Letting go is Peace, Happiness is Slavery, Mindfulness is Strength.*
 
 I hope everyday I wake up to make the world better. Even a bit — but it worth to try. As an ordinary one who has nothing significant and special. Waking up in the morning and contemplating how can I improve our lifes and human society; Thinking about real world problems and integrate my knowledge and my imagination in a new way and doing something everyday is make my life able to move further. Even I failed a thousand times; Even I never make any change but it's still enough to make my life meaningful. Life is mysterious full of questions with no answer. I would not find the meaning or anything because finally I would find out that actually there's nothing — **Nothing**. I simply need to live follow by my instinct because it's the only thing that know everything.
-\n
 
 > *Human is powerful but anything that can control over it — is more.*
 

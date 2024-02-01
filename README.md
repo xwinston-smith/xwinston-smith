@@ -8,4 +8,4 @@ Hi, my name is Simon — *Simon Isara*. I am interested in *social science*, *ps
 
 Anything that brings you here is a fortune. And I hope one day we will see each other in a better world.
 
-[**Readmore**](https://github.com/xwinston-smith/A-Brief-Introduction)
+[**Read more**](https://github.com/xwinston-smith/A-Brief-Introduction)

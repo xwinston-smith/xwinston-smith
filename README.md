@@ -7,3 +7,5 @@ I hope everyday I wake up to make the world better. Even a bit — but it worth 
 Hi, my name is Simon — *Simon Isara*. I am interested in *social science*, *psychology*, *behavioral science*, and *computer technology*. I love mixing my knowledge and imagination in new ways to create something cool. I am fascinated by *The Dynamics of Nature*, whether it's *social dynamics* or *economic dynamics*, as it holds the power to change the entire planet with a simple trigger. By integrating technology and an understanding of *The Dynamics of Nature*, it becomes even more powerful than I can imagine, and make me question, " What can I do with it? " I love contemplating, daydreaming, and observing everything around me, questioning " How could it be like that? " and connecting things randomly.
 
 Anything that brings you here is a fortune. And I hope one day we will see each other in a better world.
+
+[**Readmore**](https://github.com/xwinston-smith/A-Brief-Introduction)
